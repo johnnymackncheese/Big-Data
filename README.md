@@ -23,3 +23,7 @@ Two bros chillin' in a hot tub, 5 feet apart cause they're not gay!
 Welcome to Bible Study!! We are all children of Jesus. Kumbaya my lordddd!
 
 ![alt text](https://github.com/johnnymackncheese/Big-Data/blob/master/Screen%20Shot%202018-03-06%20at%202.24.59%20PM.png)
+
+This is the end of our website, our presentation is dead.
+Just like Ms Keisha!
+![alt text](https://github.com/johnnymackncheese/Big-Data/blob/master/Screen%20Shot%202018-03-06%20at%202.53.16%20PM.png)
